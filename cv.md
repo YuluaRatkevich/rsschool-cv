@@ -10,7 +10,7 @@ E-mail: yulua1362@gmail.com
 
 Telegram: @Yuliya1362
 
-![Photo](IMG_5665-=.jpg)
+![Photo](photo_cv.jpg)
 
 ## Summary
 
